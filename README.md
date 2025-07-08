@@ -10,4 +10,4 @@
 
 本平台特别收录各类成人内容，涵盖了多个热门影片类别，包括剧情片、伦理片、性爱视频等，确保用户可以快速找到自己感兴趣的影片。每个视频页面都包含详细信息，如时长、演员阵容及视频质量等，平台支持高清播放，并根据网络环境自动调整画质，保证无卡顿播放体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ha20250708/ha20250708 ）</span>
